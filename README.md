@@ -1,5 +1,4 @@
 - Hi, I’m @GrahamCracker01
-- Computer Science student
 - I’m currently working on my Computer Science degree
 - You can reach me by emailing me at davidasher00@gmail.com
 
